@@ -1,4 +1,4 @@
-## 😎 ℍ𝕖𝕪! ℙ𝕙𝕒𝕟𝕚 𝕐𝕖𝕝𝕔𝕙𝕦𝕣𝕚 𝕙𝕖𝕣𝕖 ✌️
+## PHANI KUMAR YELCHURI
 - 😁 Pronouns: He/His
 - 🎓 I'm currently studying in SRM UNIVERSITY AP
 - 😍 I’m interested in Computer forensics and Web development
